@@ -1,1 +1,1 @@
-# MJ-BecauseWeLiveOnEarth.github.io
+# BecauseWeLiveOnEarth.github.io
